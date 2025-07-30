@@ -2,7 +2,7 @@
 
 ![325aee19](https://github.com/user-attachments/assets/8123014d-7229-49d2-8efe-4a6f0c40fe80)
 
-![3a715685](https://github.com/user-attachments/assets/a75b9b42-c41e-4472-a3c7-5da00ea1fbc2) . . . BEWARE I go online once in a blue moon
+![3a715685](https://github.com/user-attachments/assets/a75b9b42-c41e-4472-a3c7-5da00ea1fbc2) . . . <p align="center">BEWARE I go online once in a blue moon
 
 
 
